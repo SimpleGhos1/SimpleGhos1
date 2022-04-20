@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @SimpleGhos1
+- 👀 I’m interested in ... coding (wow!)
+- 🌱 I’m currently learning ... Java 0_o
+- 💞️ I’m looking to collaborate on ... almost anything I can be useful
+- 📫 How to reach me ... maagiiiic
